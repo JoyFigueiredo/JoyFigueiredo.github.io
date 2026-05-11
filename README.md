@@ -1,1 +1,0 @@
-# JoyFigueiredo.github.io
